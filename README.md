@@ -1,6 +1,6 @@
 # Giovanna Sagae
-🎓 Master of Information Technology — Bond University (graduating June 2026)
-🔐 Cybersecurity | Business Analysis | Gold Coast, QLD 🇦🇺
+🎓 Master of Information Technology — Kaplan Business School
+🔐 Cybersecurity | Business Analysis | Australia - QLD 🇦🇺
 
 ## About Me
 IT professional combining academic cybersecurity training with 10+ years 
